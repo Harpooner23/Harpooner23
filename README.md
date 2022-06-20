@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Harpooner23
+- 👀 I’m interested in understanding what are the HR challenges on Web3, metaverse, NFT and DeFi companies, and what kind of solutions are surfacing.
+- 🌱 I’m currently learning everything web3!
+- 💞️ I’m looking to collaborate on HR projects that develop and attract the talent that seems to be scarce in this industry.
+- 📫 How to reach me: Email: afonso@harpoon.jobs | Whatsapp: +351 938 437 480
